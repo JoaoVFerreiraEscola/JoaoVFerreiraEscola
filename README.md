@@ -1,4 +1,4 @@
-### Olá, seja bem vindo ao meu perfil do github. ⛪✝️📚📖
+### Olá, seja bem vindo ao meu perfil do github! ⛪✝️📚📖
 
 ### Minhas redes sociais.
 
